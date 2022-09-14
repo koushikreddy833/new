@@ -1,2 +1,2 @@
 # new
-new repo
+new repo telugu skill hub
